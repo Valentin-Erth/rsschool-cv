@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Valentin-Erth.github.io/rsschool-cv/
